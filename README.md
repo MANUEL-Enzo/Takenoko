@@ -1,3 +1,4 @@
+![Rapport](JPGS/Contribution.png)
 ![Rapport](JPGS/rapport-takenoko-GIGABOSS_page-0001.jpg)
 ![Rapport](JPGS/rapport-takenoko-GIGABOSS_page-0002.jpg)
 ![Rapport](JPGS/rapport-takenoko-GIGABOSS_page-0003.jpg)
